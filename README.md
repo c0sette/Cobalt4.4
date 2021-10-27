@@ -1,3 +1,8 @@
+LINK GOOGLE DRIVE IF DIED: https://drive.google.com/drive/folders/1jSJUmAD7QHTNtErAYzFQRX4okW7L9B7h?usp=sharing
+https://drive.google.com/drive/folders/1jSJUmAD7QHTNtErAYzFQRX4okW7L9B7h?usp=sharing
+https://drive.google.com/drive/folders/1jSJUmAD7QHTNtErAYzFQRX4okW7L9B7h?usp=sharing
+https://drive.google.com/drive/folders/1jSJUmAD7QHTNtErAYzFQRX4okW7L9B7h?usp=sharing
+https://drive.google.com/drive/folders/1jSJUmAD7QHTNtErAYzFQRX4okW7L9B7h?usp=sharing
 <h1 align="center">Cobalt Strike 4.4 : Wipe Your Ass With The Real Cobalt Strike</h1>
 
 <p align="center">
